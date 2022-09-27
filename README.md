@@ -16,5 +16,23 @@ KUNJUNGI PLATFORM MEDIA SOSIAL SAYA:
 
 
 
+______________________________________________________
+**CARA MEMBUAT APLIKASI DARI HTML MENGGUNAKAN APK BUILDER**
+
+![AddText_09-10-07 05 10](https://user-images.githubusercontent.com/114487573/192532213-7cefa748-404a-455c-b9dc-e8440a93f762.jpg)
+`LINK` : https://youtu.be/IjqPRBqRlSE
+_________
+
+
+
+
+
+
+
+
+
+
+
+
 
      TERIMA KASIH TELAH BERKUNJUNG🥰
