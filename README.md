@@ -1,16 +1,19 @@
-### Hi there 👋
+HAI SELAMAT DATANG DI PROFIL GITHUB KU👋
 
-<!--
-**MR-CRX/MR-CRX** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Saya adalah orang yang ingin menjadi developer game dan website
 
-Here are some ideas to get you started:
+KUNJUNGI PLATFORM MEDIA SOSIAL SAYA:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+`YOUTUBE` : https://bit.ly/3CdzrRd
+
+`INSTAGRAM` : https://bit.ly/3dMxpy8
+
+`SOCIABUZZ` : https://bit.ly/3SgrMXT
+
+`SAWERIA` : https://saweria.co/mrcrx
+
+`WEBSITE` : https://mrcrx.blogspot.com
+
+
+
+     TERIMA KASIH TELAH BERKUNJUNG🥰
