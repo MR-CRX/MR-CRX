@@ -1,4 +1,4 @@
-HAI SELAMAT DATANG DI PROFIL GITHUB KU👋
+**HAI SELAMAT DATANG DI PROFIL GITHUB KU👋**
 
 Saya adalah orang yang ingin menjadi developer game dan website
 
