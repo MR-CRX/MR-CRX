@@ -12,7 +12,7 @@ KUNJUNGI PLATFORM MEDIA SOSIAL SAYA:
 
 `SAWERIA` : https://saweria.co/mrcrx
 
-`WEBSITE` : https://mrcrx.blogspot.com
+`WEBSITE` : https://mrcrx.my.id
 
 
 
